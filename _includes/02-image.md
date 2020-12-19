@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Image of Renee] http://everglowingsouls.com/wp-content/uploads/2017/04/17308977_1354329934626371_3551585737612141796_n.jpg
